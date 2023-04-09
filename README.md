@@ -1,4 +1,4 @@
-# Raijinshu-Guild
+# Raijinshu-Guild ( My Gaming Guild )
 A Blockchain Gaming Guild that is originated on Philippines
 
 Raijinshu Guild seeks to identify, research, and interact in various NFT initiatives. We believe in the potential of blockchain games to create opportunities for people to earn from and have only just begun to explore it. Raijinshu Guild aims to create additional growth chances in order to assist and direct people toward the crypto space and provide them with the opportunity to not only take part in play-to-earn activities but also to be able to profit from them.
